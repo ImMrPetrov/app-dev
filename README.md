@@ -1,4 +1,4 @@
-#**Christian Baranda**
+#Christian Baranda
 
 ![alt text](https://www.justwatch.com/images/poster/300655827/s332/season-6)
 
